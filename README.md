@@ -8,6 +8,6 @@
   - Computer Science
   - Adventure Sports
 - Ways to contact me:
-  - Mobile: +1 (312)-776-4881
+  - Mobile: +1 (312)-885-9903
   - School e-mail: mgupta31@uic.edu
   - Personal e-mail: gmanav7804@gmail.com
