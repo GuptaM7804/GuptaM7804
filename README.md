@@ -4,7 +4,7 @@ Hi, I'm Manav
 - Things I like:
   - Video Games: RPGs and shooters
   - Music: anything that sounds good
-  - Movies
+  - Movies: anything that looks good
   - Adventure Sports
   - Computer Science
 - Ways to contact me:
