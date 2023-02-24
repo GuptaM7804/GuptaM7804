@@ -5,8 +5,8 @@
   - Video Games: RPGs and shooters
   - Music: anything that sounds good
   - Movies
-  - Computer Science
   - Adventure Sports
+  - Computer Science
 - Ways to contact me:
   - Mobile: +1 (312)-885-9903
   - School e-mail: mgupta31@uic.edu
