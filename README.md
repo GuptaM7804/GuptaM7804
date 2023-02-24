@@ -11,3 +11,4 @@ Hi, I'm Manav
   - Mobile: +1 (312)-885-9903
   - School e-mail: mgupta31@uic.edu
   - Personal e-mail: gmanav7804@gmail.com
+  - Linkedin: https://www.linkedin.com/in/manav-gupta-386664229/
