@@ -1,5 +1,5 @@
 - Hi, I’m Manav Gupta
-- I’m a computer science major in my sophomore year
+- I’m a computer science major in my junior year
 - I'm aiming to get my master's degree and become a software engineer
 - Things I like:
   - Video Games: RPGs and shooters
